@@ -64,7 +64,7 @@ Verifizierte Codes: **PFA, CT5%, CT-INTERN, CT5K, CT10K**
 
 ---
 
-## 🔖 Keywords
+## 🔖 
 `iFunds Gutschein`, `iFunds Rabatte`, `iFunds Promo-Code`, `iFunds.io Angebote`, `iFunds Rabattcodes 2025`
 
 ---
